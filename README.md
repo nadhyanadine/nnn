@@ -1,1 +1,1 @@
-# nnn
+tuis nama nim sama kelas
